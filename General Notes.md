@@ -1,5 +1,4 @@
 
-![[IMG_3465.mov]]
 
 There are two things to keep in mind throughout the entire Taubman approach. 
 
